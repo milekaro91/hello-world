@@ -1,2 +1,2 @@
 # hello-world
-jomen
+jomen stikmen hazyn dzanian nadmanganian
